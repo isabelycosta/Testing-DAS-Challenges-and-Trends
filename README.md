@@ -5,7 +5,7 @@
 1. Axial coding phase of Grounded Theory procedures
    👉 Download the file: (GT) Challenges.xlsx
 3. Quality checklist
-   👉 Download the file: (GT) Challenges.xlsx
+   👉 Download the file: Quality Checklist.xlsx
 
 
 
